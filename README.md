@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @igorgaldeano
 - 👀 I’m interested in technology 
-- 🌱 I’m currently learning electronic engeneering
+- 🌱 I’m currently graduating on electronics engeneering
 - 💞️ I’m looking to collaborate on any innovative project
 - 📫 Reach me at igor.galdeanorodrigues@hotmail.com or on instagram @igorgaldeano
 
